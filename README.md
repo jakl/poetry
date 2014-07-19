@@ -578,7 +578,7 @@ Slipping through shared constructs, shared fuel, radiating regardless
 
 .
 
-Walks down BART steps, stops, asks, "How dat beat sway?"
+Walks into BART, asks, "How dat beat sway?"
 
 Fixed on San Jose, asks me, "Fremont or Millbrae?"
 
