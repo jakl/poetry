@@ -698,11 +698,11 @@ Shitty Poetry
 
 Yggdrasil of the ocean
 
-  branches flowing with waves in motion
+  branches flowing with waves, in motion
 
 .
 
-Leaves brilliant fluoresce
+Leaves, brilliant fluoresce
 
   a deep glowing trellis
 
