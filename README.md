@@ -716,7 +716,7 @@ Trunk plummets below
 
 Where creatures stir
 
-  above the deepest fissure
+  above aquatic fissure
 
 .
 
