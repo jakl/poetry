@@ -468,7 +468,7 @@ Grab tar and fire
 
 we'll incinerate her ire
 
-Just save the creates alright?
+Just save the creatures alright?
 
 .
 
