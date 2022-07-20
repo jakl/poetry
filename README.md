@@ -699,36 +699,37 @@ Shitty Poetry
 Yggdrasil of the ocean
 
   branches flowing with waves in motion
+
 .
 
 Leaves brilliant fluoresce
 
   a deep glowing trellis
-  
+
 .
 
 Trunk plummets below
 
   into the dysphotic zone
-  
+
 .
 
 Where creatures stir
 
   above the deepest fissure
-  
+
 .
 
 From barnacle balconies
 
   play siren tonalities
-  
+
 .
 
 And dainty denizens dance
 
   with wild things, entranced
-  
+
 .
 
 Life, hidden submerged
