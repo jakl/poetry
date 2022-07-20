@@ -482,7 +482,7 @@ Victor! We've thwarted the fright.
 
 ## Flood in Muir Woods
 
-The frog & the nematoad
+Frog & Nematoad
 
 in their mushroom abode
 
