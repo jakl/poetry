@@ -678,5 +678,51 @@ Climb on down to the roots of your tree
 
 Today you done saw all ya'needed ta see
 
+## Toilet Words
+
+A shrine filled with sludge
+
+Porcelain won't budge
+
+'neath weight of my mass
+
+Meals spew out my ass
+
+Comfortable tight space
+
+For minds to contemplate
+
+Shitty Poetry
+
+## Sunken Tree of Life
+
+Yggdrasil of the ocean
+
+  branches flowing with waves in motion
+
+Leaves brilliant fluoresce
+
+  a deep glowing trellis
+
+Trunk plummets below
+
+  into the dysphotic zone
+
+Where creatures stir
+
+  above the deepest fissure
+
+From barnacle balconies
+
+  play siren tonalities
+
+And dainty denizens dance
+
+  with wild things, entranced
+
+Life, hidden submerged
+
+  from Yggdrasil, has surged
+
 ## Set of A-Z poems
 [A-Z Poem Page](./a-z.md)
